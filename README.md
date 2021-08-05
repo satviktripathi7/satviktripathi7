@@ -1,0 +1,4 @@
+- I’m interested in Finance and Economics
+- I’m currently learning Finance, Python, Statistics and Excel/VBA.
+- I’m looking to collaborate on Finance-related papers or something
+- You can reach me on [LinkedIn](https://www.linkedin.com/in/satviktripathi/) or write an email to my satviktripathi7@gmail.com
